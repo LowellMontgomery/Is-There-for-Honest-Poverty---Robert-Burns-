@@ -24,4 +24,4 @@ This adaptation refactors the original Scots poem into a universal anthem. By sh
 | **Bear the gree** | Be the way | To take the prize or win the day. |
 
 ## 🔗 Original Inspiration
-[Link to your playlist of original performances here]
+https://youtube.com/playlist?list=PLdbzNX9HlTRgnTOFsqzvS9ZFtFFA6yBts
