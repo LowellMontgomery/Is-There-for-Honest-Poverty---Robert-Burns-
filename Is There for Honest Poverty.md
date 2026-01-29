@@ -38,11 +38,11 @@ Their dignities, an’ a’ that, 🎵
 The pith o’ Sense an’ pride o’ Worth 🎵  
 Are higher rank than a’ that. 🎵  
 
-Then let us pray that come it may, 🎵  
-As come it will for a’ that, 🎵  
-That Sense and Worth, o’er a’ the earth 🎵  
-Shall be the way an’ a’ that. 🎵  
+Then let us pray,that come what may, 🎵  
+As come it will, for a’ that, 🎵  
+That Sense and Worth, all o’er the earth 🎵  
+Shall be the way, an’ a’ that. 🎵  
 For a’ that, an’ a’ that, 🎵  
-It’s comin yet for a’ that, 🎵  
-That everyone the world o’er 🎵  
+It’s comin yet, for a’ that, 🎵  
+That everyone, the world o’er 🎵  
 Shall be as one, for a’ that. 🎵  
