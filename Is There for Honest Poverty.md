@@ -1,4 +1,4 @@
-# A’ That and A’ That
+# Is There for Honest Poverty 
 **Modernized by the Open Source Community**
 *Based on the original by Robert Burns*
 
